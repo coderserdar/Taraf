@@ -1,0 +1,72 @@
+# Geri kazanılan toprak ve bir ‘Çirkin Kraliçe’
+
+*Onur Akmeriç 08.06.2010*
+
+<div class="yazi"><p>Evinin arka bahçesiydi Roland Garros. Dört yıl üst üste orada kazanmış, tek bir maç dahi kaybetmemişti. 2008’de tek bir set dahi kaybetmeden şampiyonluğa ulaşmıştı. </p>
+<p>Fakat dizindeki sakatlıklar onun elini kolunu bağladı geçen yıl. Evinin arka bahçesine giren bir işgalci onun oyuncağını elinden aldı. Federer değildi Nadal’ın elinden kupasını alan, Söderling’ti. İspanyol raket her ne kadar “intikam” olarak görmese de bunu, sevgilisini elinden alan adamı hayal kırıklığına uğratmak isteyeceğini hepimiz biliyorduk. </p>
+<p>İsveçli ise çok önemli bir başarıya imza atmış ve iki yıl üst üste finale kalmıştı. Geçen sene Federer karşısında maçın büyük bir bölümünde varlık gösteremeyen Söderling bu yıl da finalde uyuyan taraftı.</p>
+<p>Nadal’ın bu zaferi aslında o sağlıklı iken toprakta her zaman muzaffer olan taraf olacağının bir göstergesi. </p>
+<p>Müthiş bir sporcu, azimli bir mental istikrar abidesi. Paris’teki beşinci zaferinden sonra tekrar dünya 1 numarasını eline geçirdi İspanyol. </p>
+<p>Son şampiyon Federer ise çeyrek finalde muazzam oynayan Robin Söderling’e elendi. İsveçli raket iki yıl üst üste son şampiyonu alt etti.</p>
+<p>Yarı finallerde sürpriz iki isim vardı. Tomas Berdych ve Jürgen Melzer. Avusturyalı Melzer üçüncü turda bu yılın toprakta en çok maç kazanan ismi David Ferrer’i set bile kaybetmeden geçerken çeyrek finalde Novak Djokovic’i iki set geriden gelip mağlup ederek tüm dikkatleri bir anda üzerine topladı. </p>
+<p>Berdych ise Andy Murray ve Mikhail Youzhny’i alt ederek son dörde ulaştı. Fernando Verdasco, Andy Murray, Andy Roddick ve Fransız tenisçiler yine turnuvanın hayal kırıklıkları oldular. </p>
+<p>Kadınlar tarafında ise sürpriz bir final vardı. Zeminin karakteristiği nedeniyle çok ince dokunuşları olan oyuncuların burada istenilen performansı gösteremediğine rastlanmışken, daha çok koşan ve mücadeleyi seven raketler her zaman başarılı olmuşlardır. </p>
+<p>İşte beklenmedik finalde Avustralyalı Samantha Stosur’ın karşısına çıkan İtalyan Francesca Schiavone rakibini iki sette mağlup edip eski şampiyonlardan Mary Pierce’ın elinden Suzanne Lenglen kupasını alırken yüzüne düşen kocaman gülümseme mutluluğunu tüm çıplaklığıyla gözler önüne seriyordu. </p>
+<p>Paris’in ‘çirkin’ kraliçesinin kupalı güzelliği göz kamaştırıyordu.</p>
+<p>2001’den bu yana yitik ve zevksiz finalleri hep tek taraflı geçmiş müsabakalardan sonra iki sette sonuçlanmasına rağmen 2010 Roland Garros finali kadınlarda seviyeyi yükseltti. </p>
+<p>Tabii turnuva finallerinin son 10 yılda bu kadar sönük geçmesinin nedeni Justine Henin. Juju o kadar domine etmişti ki Paris’i, karşısına kim çıksa direnemiyordu. </p>
+<p>O gittikten sonraki iki finalin de kötü geçmesinin nedeni ise Dinara Safina’ydı. </p>
+<p>Bu sefer ters yönden etkiledi. Hiçbir şey oynamayarak rakiplerine kupayı vermişti Rus raket.</p>
+<p>Kadınlar tablosu turnuvanın başlarında biraz daha sürprizliydi. </p>
+<p>Roma şampiyonu Maria Jose Martinez Sanchez, Madrid şampiyonu Aravane Rezai, başarılı bir toprak sezonu geçiren Lucie Safarova dördüncü turu bile göremediler. </p>
+<p>Dinara Safina daha ilk turda yaşının iki katı, boyunun yarısı bir tenisçiye mağlup olurken son şampiyon Svetlana Kuznetsova üçüncü turda vatandaşı Kirilenko’ya boyun eğdi.</p>
+<p>Geçen yıl İpek Şenoğlu’nun çiftler partneri olan Kazak raket Yaroslava Shvedova teklere daha çok ağırlık vermeye başlamıştı. </p>
+<p>Bu çalışmanın sonucunu çeyrek final görerek alırken karışık çiftlerde partneri Julian Knowle ile birlikte finale yükseldi. </p>
+<p>Çift kadılarda Williams kardeşler geçen yıl tek kazanamadıkları kupayı 11 yıl aradan sonra tekrar kaldırmayı başardılar. Çift erkeklerde Daniel Nestor/Nenad Zimonjic ikilisi zafere ulaştı.</p>
+<p>Fransa Açık 2010’a genel olarak bakarsak ilk turlarda geceye sarkan programlar sorunlar yaşattı.</p>
+<p> İlk iki turda çoğu akşam maçı ertesi güne sarkarken bundan oyuncular şüphesiz ki olumsuz yönde etkilendiler, hatta bazı tenisçiler beş gün arka arkaya korta çıkmak zorunda kaldı. Bu kadar köklü bir organizasyonun böyle basit hatalar yapması şaşırttı. </p>
+<p>Tabii ki doğa da yine iş başındaydı. Yağan yağmur ve soğuk hava yüzünden tribünler hiç olmadığı kadar boş kalırken maçlar da sık sık kesintiye uğradı. </p>
+<p>Neticede Rafa’nın tekrar kraliyetinin başına geçtiği, kadınlarda ise sürpriz bir şampiyonun çıktığı çekişmeli bir turnuva daha tarihteki yerini aldı. Şimdi yolculuk biraz daha kuzeye, Wimbledon’a. Yeni kesilmiş çim kokusunda güzel anılar saklı.</p>
+<p>akmeric@gmail.com</p></div>
+
+Kaynak: [taraf.com.tr](http://www.taraf.com.tr:80/onur-akmeric/makale-geri-kazanilan-toprak-ve-bir-cirkin-kralice.htm), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20100611003849/http://www.taraf.com.tr:80/onur-akmeric/makale-geri-kazanilan-toprak-ve-bir-cirkin-kralice.htm)
+# Vasat Avrupa derbisi
+
+*Onur Akmeriç 15.06.2010*
+
+<div class="yazi"><p>Afrika kıtasında düzenlenen ilk Dünya Kupası organizasyonunun grupllar aşamasındaki ender Avrupa eşleşmelerinden ilki. 1988’in Avrupa şampiyonu Hollanda, bir sonraki turnuvada unvanı devrettiği Danimarka ile karşılaşıyor. Vikingler’in 92’de yarı finalde Portakallar’ı penaltılarla elemesini, van Basten’in kaçırdığı penaltıyı kim unutabilirdi. O yıl kırmızıbeyazlılar, Yugoslavya’nın oyunlardan ihraç edilmesinin ardından şıpıdık terliklerle tatil yaptıkları plajdan gelip, kupayı kaldırmıştı.</p>
+<p>Tribünlerin doluluğu ise başlama vuruşu öncesinde dikkat çekiyordu. Nasıl olmasın, Güney Afrika’da Hollandalıların varlığı yüzyıllar öncesine dayanıyordu. Turuncular son 19 maçını kazanmanın verdiği özgüvenle ancak Robbensiz olmanın tedirginliği ile sahaya çıkıyordu.</p>
+<p>Müsabakanın ilk şutu 10. dakikada Kuyt ile geldi. van der Vaart ise bencilliğini konuşturup bir dakikada iki pozisyon harcadı. Danimarka en etkili atağını 27’de geliştirdi. Bendtner’in kafa vuruşu reklam panoları ile buluştu. İlk yarım saatte daha ısıran taraf Portakal renkli forma iken, Danimarka kısa paslar ve kontralarla pozisyona giriyordu. 34’te topu önünde bulan Rommedahl, Stekelenburg’u nişanlayınca ilk yarıdan gol sesi çıkmadı.</p>
+<p>İkinci yarı ise gol sesi ile başladı. Savunmadan gönderilen topta van Persie ceza sahasının solunda topla buluştu.</p>
+<p>Peşine Rüştüvari takılan kaleci Sorensen kalesine dönmeye çalışırken yaptığı ortaya defansta Poulsen’in kafası Agger’e çarpıp fileleri buldu. Sahada gezinen van der Vaart’ın yerine oyuna giren Elia, sol kanadı ve uyuyan Hollanda’yı uyandırmaya yetti. 82’de Sneijder’ın ceza alanı dışından füzesi direğe takılırken, 85’te defansın arkasına sarkan Elia’nın direkten dönen şutunu Kuyt tamamlayınca, Hollanda rahatladı. </p>
+<p>Kendi kalesine gol atan Poulsen, son anlarda çizgiden topu çevirdiyse de iş işten çoktan geçmişti. Tutuk Hollanda muradına ererken Danimarka’nın şapkasını önüne koyup düşünmesi lazım.</p></div>
+
+Kaynak: [taraf.com.tr](http://www.taraf.com.tr:80/onur-akmeric/makale-vasat-avrupa-derbisi.htm), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20100617060807/http://www.taraf.com.tr:80/onur-akmeric/makale-vasat-avrupa-derbisi.htm)
+# Bugün yeşil bayram
+
+*Onur Akmeriç 21.06.2010*
+
+<div class="yazi"><p>Teniste dört büyükten üçüncüsü bugün başlıyor. Çoğu tenissevere göre Grand Slam’lerin en asili, en gösterişlisi ve en prestijlisidir Wimbledon. Britanyalı kendini beğenmişliği ve dik kafalılığı akar her yerinden. Kendine göre seribaşı belirleme sistemi, beyaz kıyafet giyme zorunluluğu, uzun yıllar yağmura aldırmadan korta çatı eklememek... E çim sezonu bu kadar kısa iken bu şımarıklığa da tahammül etmek gerekir.</p>
+<p>Bırakın genç tenisçileri, akranlarının bile yakınından geçerken önünü iliklediği Roger Federer işte bu özel seribaşı belirleme sistemine göre dünya iki numarası olmasına rağmen bir numaralı seribaşı olarak tablonun en üstünde arz-ı endam ediyor. Novak Djokovic ise her zamanki gibi kortun uzmanının tarafına düşmeyi başardı. Sırp raket çimde Federer’in, toprakta Nadal’ın tarafına düşmekten helak oldu, psikolojik olarak çöktü. İsviçreli’yi zorlayacak isim bulmak zor ama hani kim biraz tırmalayabilir dersek dördüncü turda olası rakibi Feliciano Lopez ve çeyrek finaldeki olası rakipleri Berdych ve Alman veteran Schüttler. Yarı finalde ise karşısına Roddick veya Hewitt çıkabilir. Djokovic’in Federer’den önce düşünmesi gereken iki önemli rakip. Roddick son sekiz yolundaki rakipleri Cilic ve Llodra da tehlikeli isimlerden sadece ikisi.</p>
+<p>Rafael Nadal ise şampiyon olarak bırakmıştı burayı. Geçen yıl sakatlığı nedeniyle mücadele edemedi. Bu yıl da iddialı. Çeyreğine baktığımızda daha ilk turdan ters bir adam karşılıyor. Genç Japon Kei Nishikori. Bu özel yapım çocuk Bollettieri Akademisi çıkışlı ancak biraz üretim hatası olmuş olacak ki çok sık sakatlanıyor. Yine de can sıkıntısı yaratabilir Nadal’da. İspanyol’u ileride bekleyen tehlikeler ise James Blake ve John Isner. Gulbis sakatlığı nedeni ile çekildi. Buradan sağ salim çıkarsa dünya 1 numarası, çeyrek finalde Söderling veya Baghdatis onu bekliyor olabilir.</p>
+<p>Nadal’ın yarısına düşen Britanyalı Andy Murray oldu. Vatandaşlarının Grand Slam şampiyonluğu kazandığını gören son İngilizlerin yaşını hesaplamak için karbon testleri yetersiz kalırken artık İskoç kökenli bu arkadaşımızın Wimbledon’ı kazanma vakti geldi de geçiyor. Çeyrek final yolundaki rakipleri Gilles Simon ve Sam Querrey gibi duruyorken çeyrek finalde Verdasco ya da Tsonga onu bekliyor olacaklar.</p>
+<h4>Kadınlar tablosunda erken final</h4>
+<p>Kadınlar tarafında çok heyecanlı dördüncü tur eşleşmeleri mevcut. Henüz ilk bölümde 1 numaralı seribaşı Serena Williams ile Maria Sharapova’nın olası dördüncü tur eşleşmesi bizleri altı yıl öncesinin finaline götürecek. Orada 17 yaşında kupayı Amerikalı’nın elinden söken Sharapova sakatlıklarla boğuştuğu dönemin acısını çıkartabilecek mi? Yoksa Tanasugarn ya da Hantuchova bu buluşmayı engelleyebilecek mi?</p>
+<p>İlk çeyrekte bu iki tenisçiyi zorlayacak başka isim şu an yok ama her turnuva kendi sürprizini çıkarır tabii ki. Buradan çıkacak oyuncuyu yarı finalde karşılamaya aday isimler çok. Fransa Açık finalisti Stosur, Azarenka, Jie Zheng, Wozniacki, Rezai ve Rybarikova son dörde kalmak adına kıyasıya bir mücadeleye girecekler. Azarenka’nın ilk turdaki rakibi 1999 yılı yarı finalisti Mirjana Lucic. Elemelerden tırmanmak zorunda kaldı buralara 81 doğumlu tenisçi. Çok ilginç ilk tur maçları birinin baş aktörü oldu. Ana tablonun alt tarafında mutlak favori Venus Williams. Çeyrek finale kadar önünde hiçbir engel yok neredeyse. Belki toparlanırsa Ana Ivanovic ki onun da bunca şeyden sonra dördüncü tur görmesini şampiyon olmuş gibi karşılayabiliriz. Çeyrek finalde Bartoli ya da Fransa Açık’ın sürpriz şampiyonu Schiavone ile olası eşleşmeleri var Amerikalı’nın. Ve son çeyreğe geldiğimizde iki Belçikalı, Kim Clijsters ile Justine Henin’in olası eşleşmeleri göz yaşartıyor bir nostalji albümü gibi.</p>
+<p>Kariyerindeki tek eksiği kapatmak için tenise geri dönen Juju’yu bu kupayı kaldırırken görmek isteyenlerin sayısı oldukça fazla. Belçikalı’nın bunun için Petrova, Clijsters ve olası çeyrek final rakibi Jankovic’i geçmesi gerekecek.</p>
+<h4>Marsel bugün kortta</h4>
+<p>Türk tenisçilerden Marsel güzel kura çekti. Hani olur da turları birer birer atlarsa Federer ile çeyrek finalde karşılaşma olasılıkları kalplerde taşikardi yaratıyor. İpek Şenoğlu da çiftlerde geçen yıl üçüncü tur gördüğü turnuvada bu yıl yeni bir partner Anabel Medina Garrigues ile ilk turda Jankovic/ Scheepers ikilisi ile karşılaşacak. Garrigues çok deneyimli bir çiflter oyuncusudur. Marsel İlhan İlk tur maçında bugün Marcos Daniel ile 17. kortun ikinci maçında çime basacak.</p>
+<p>akmeric@gmail.com</p></div>
+
+Kaynak: [taraf.com.tr](http://www.taraf.com.tr:80/onur-akmeric/makale-bugun-yesil-bayram.htm), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20100624020019/http://www.taraf.com.tr:80/onur-akmeric/makale-bugun-yesil-bayram.htm)
+# Maya için zaman lazım
+
+*Onur Akmeriç 30.07.2010*
+
+<div class="yazi"><p>Bira kavramını değiştirenlerin şehri Plzen'de Beşiktaş, güzel futbolu ile taraftarını sarhoş etmek için sahaya çıkıyordu. Değişik tat arayışlarına giren bira üreticileri burada, 19. yüzyıldan önce farklı bir üretim sürecinden geçen ve rengi daha koyu olan birayı alıp tadını daha farklı, içilebilir bir hale sokmuşlardı. Bu bira daha sonra sevilmiş ve yaygınlaşmış, kaynağının ismini alıp Pilsen olarak anılmaya başlanmıştı.</p>
+<p>Beşiktaş ise çok uzun süredir göze hoş gelen futboldan uzaktı. Göze hoş gelen bir şekilde yönetilmekten de uzaktı. Farklı bir şeyler yapılması gerekiyordu. Schüster ilk hamleydi. Quaresma transferi bile kesmeyince Guti alındı. Farklı bir renge bürünmüştü siyah-beyazlılar ama o muhteşem tadı alabilecek miydik?</p>
+<p>Alman teknik adam, Bobo yerine Nobre'yi tercih ederken Hilbert de ilk defa bir resmi müsabakada formasını sırtına geçirdi. Defansta çok beğendiği söylenen Zapo yedekte iken Toraman-Sivok ikilisine görev vererek başlıyordu maça Schüster. Delgado-Quaresma-Hilbert üçlüsü ile "sıkıntı" olmaz mıydı?</p>
+<p>Oldu da. Beşiktaş beklenilen tempodan çok uzaktaydı. İlk yarım saatte ev sahibi, siyah-beyazlıların üzerine sağ kanattan gidiyordu. İbrahim Üzülmez çok yalnız kalıyordu. Ama Hakan kadar değil. 25. dakikada çok iyi uzayarak bir kafa vuruşu çıkartan file bekçisi, 28'de Plzen'in çalışılmış serbest vuruş organizasyonunda Limbersky ile bulduğu gole engel olamadı. Bu golle doymayan ev sahibi 10 dakikada üç kez Hakan ile karşı karşıya kaldı ama 21 numara, kalesinde 100 puanlık performans sergiledi. 41'de Nihat, serbest vuruştan direği vururken iki dakika sonra garip bir penaltı kazanan Kara Kartal, Delgado ile beraberliği yakaladı.</p>
+<p>İkinci yarının başındaki Necip değişikliği doğruydu da Nihat'ın değil, Delgado'nun yerine girmesi takımı daha fazla toparlardı. Savunma anlamında direnci artan Beşiktaş hala şuursuzca oynuyordu ancak. Hilbert sol bekteydi bir ara. İkinci yarıda da oyun sıkıcılık anlamında bir başyapıttı. Plzenli biracıların biraya getirdiği yeniliğe bakarsak Beşiktaş’ın mayası şimdilik tutmamış gibi duruyor.</p></div>
+
+Kaynak: [taraf.com.tr](http://www.taraf.com.tr:80/onur-akmeric/makale-maya-icin-zaman-lazim.htm), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20100801190121/http://www.taraf.com.tr:80/onur-akmeric/makale-maya-icin-zaman-lazim.htm)
